@@ -8,4 +8,4 @@
  
  dfabfdnbjfnb
  
- |fgadfbf|ffdbdb|bdfbdfb|
+ | fgadfbf | ffdbd | bdfbdfb |
